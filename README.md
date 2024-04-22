@@ -1,10 +1,13 @@
 # 🚀Grass Airdrop Referal Code💡
+
+Hey crypto enthusiasts 🌐! 
 Grass Airdrop Referal Code: MssRqNDh_fOWOf5
+🔗 Quick Link: https://app.getgrass.io/register?referralCode=MssRqNDh_fOWOf5
 
-Hello fellow crypto enthusiasts! 
+###More Info
+Discover a way to earn free crypto tokens 🤑 with the Grass extension 🔗. 
 
-
-Hey crypto enthusiasts 🌐! Discover a way to earn free crypto tokens 🤑 with the Grass extension 🔗. Here's how:
+Here's how:
 
 1. Download & run Grass extension 💻
 2. Use my referral code: MssRqNDh_fOWOf5 📝
