@@ -1,4 +1,4 @@
-# 🚀Grass Airdrop Referral Code💡
+# 🚀Grass Airdrop Referal Code💡
 Grass Airdrop Referal Code: MssRqNDh_fOWOf5
 
 Hello fellow crypto enthusiasts! 
